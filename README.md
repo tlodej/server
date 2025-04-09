@@ -1,1 +1,0 @@
-legalny swiat minecraft(R)
